@@ -5,6 +5,5 @@
 - 👯 I’m looking to collaborate on SEO and Marketing projects.
 
 - 💬 Ask me about SEO and Marketing
-- 📫 How to reach me: Bluesky: @luisignaciosan.com
-- 😄 
+- 📫 How to reach me: Bluesky: @luisignaciosan.com 😄 
 - ⚡ Fun fact: I have a PhD in history 🥇
